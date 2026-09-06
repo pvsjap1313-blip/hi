@@ -1,0 +1,2 @@
+# hi
+ITS A WEBSITE AND AN APP
